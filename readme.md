@@ -1,1 +1,1 @@
-new-projekt3 сдуланпо первому варианту с сайта ithub.com
+new-projekt3 сделан по первому варианту с сайта ithub.com
